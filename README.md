@@ -1,2 +1,2 @@
-# -ghghghghghh
+# -ghghghghghhppp
 дз по Технологиям и програмированию
